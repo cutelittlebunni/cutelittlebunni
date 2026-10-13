@@ -20,7 +20,6 @@ cυძcσოƒ  <img src="https://i.pinimg.com/736x/7c/d8/fb/7cd8fb8f41aefc07084
 ꣑ৎ  ㅤ [ rentry ](https://rentry.co/celinsrentry)ㅤㅤ꣑ৎ  
 <br>
 <div align="center"> 
-<img src="https://i.postimg.cc/bND7mFrS/85.gif" width="450"> <br>
 <div align="center">
 
 
