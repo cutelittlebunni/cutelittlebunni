@@ -10,7 +10,7 @@
 cυძcσოƒ  <img src="https://i.pinimg.com/736x/7c/d8/fb/7cd8fb8f41aefc07084a40e6e7883365.jpg" width="40">
 <br>
 ρυɓ 𐐽ჩᨡ𝗍 𐐫ƒƒ, ᭙2ιᩚ <br>
-<img src="https://komarev.com/ghpvc/?username=theunloved&style=for-the-badge&color=blue&label=bunnies" />
+<img src="https://komarev.com/ghpvc/?username=theunloved&style=for-the-badge&color=#FFB6C1&label=bunnies" />
 
 
 
